@@ -1,0 +1,1 @@
+# TE-IT-SPPU-2019-SEM6-Practicals
